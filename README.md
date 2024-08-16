@@ -1,1 +1,1 @@
-# dekopinda-kudus
+# dekopinda-karanganyar
